@@ -14,7 +14,21 @@ This recipe is based on an Ikarian longevity stew that one of the longest living
 
 ### Ingredients
 
-_To be added_
+2 onions  
+3 cloves of garlic  
+2 carrots 150g  
+2 leeks (400g)  
+1 x 400g tin blackbeans beans - 240g drained - cannellini/ haricot  
+1 x 400g tin of cooked chickpeas - 240g drained  
+1 x 400g tin of cooked lentils - 240g drained  
+150g dry wholemeal pasta (we used fusilli)  
+200g broccoli  
+100g kale  
+1 x 680g tin chopped tomatoes  
+100g tomato paste  
+2 tablespoons tamari  
+2.5 litres of veg stock  
+½ tsp black pepper
 
 ### Directions
 
